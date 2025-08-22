@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm from SMK Brantas Karangkates, Grade XI RPL 1
+I'm from SMK Brantas Karangkates
 
 
 ## 🌐 Socials:
